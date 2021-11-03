@@ -7,5 +7,5 @@ I'm interested in the development of neofeed, deploy-to-neocities, Linux 3ds.
 Reach me on discord. ashford#7467  
 
 Cool people:  
-xerpi 
-victoriadrake
+xerpi   
+victoriadrake  
